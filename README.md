@@ -7,10 +7,15 @@ My soundscape is meant to elicit the feeling of being cozy inside while a storm 
 Sources 
 
 Jmbphilmes. (2013, September 17). Rain heavy 2 (rural). Freesound. https://freesound.org/people/jmbphilmes/sounds/200272/ 
+
 Joshs. (2013, October 19). 080212-002-bugs-centraliaPA.wav. Freesound. https://freesound.org/people/joshs/sounds/203393/ 
+
 Juskiddink. (2010, June 20). Frogs.wav. Freesound. https://freesound.org/people/juskiddink/sounds/99644/ 
+
 Riabad. (2021, July 3). LightRainBirds.WAV by Riabad. Freesound. https://freesound.org/people/Riabad/sounds/578960/ 
+
 TuneHntr_2Day. (2008, September 22). [SFX] angelic_ choir_ ahhhh_ em chord (90bpm) (320KB).MP3. Freesound. https://freesound.org/people/TuneHntr_2Day/sounds/60599/ 
+
 Ward, P. (Writer), & Han, B. (Director). (2016, Jan 7). Summer Showers (Season 7, Episode 16) 	[TV series episode]. In F. Siebert, Adventure Time. Cartoon Network.
 
 
